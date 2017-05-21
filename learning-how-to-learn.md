@@ -252,3 +252,179 @@ Avoid practicing only the easy stuff, which can bring the illusion that you've m
 
 **Einstellung is when your initial thought, an idea you've already had in mind, or a neural pattern you've already developed well and strengthened, prevents a better idea or solution from being found.** Or keeps you from being flexible enough to accept new, better, or more appropriate solutions. The Law of Serendipity is helpful. Lady Luck favors the one who tries. Just pick one tiny thing out to learn, then another.
 ***
+### Week 3 - Procrastination
+### Tackling Procrastination - It's Easier, and More Valuable, Than You Think
+The reason that learning to avoid procrastination is so important is that good learning is a bit by bit activity. Avoid cramming which doesn't build solid neural structures, by putting the same amount of time into your learning but spacing that learning out by starting earlier you'll learn better.
+
+Unlike procrastination which is easy to fall into, willpower is hard to come by. It uses a lot of neural resources. You shouldn't waste willpower on fending off procrastination except when absolutely necessary.
+
+
+### Zombies Everywhere
+Chunking is related to habit. Habit is an energy saver for us. It allows us to free our mind for other types of activities. That's the point of habit, you don't have to think in a focused manner about what you're doing while you're performing the habit. It saves energy.
+
+Habits have four parts:
+1. - **The cue.** The trigger that launches you into zombie mode. May be something as simple as seeing the first item in your to do list. Time to start next week's homework. Or seeing a text message from a friend. Time to stop work. A cue by itself is neither helpful or harmful, it's the routine. What we do in reaction to that cue, that's what matters.
+
+2. - **The routine.** This is your zombie mode. The routine habitual response your brain is used to falling into when it receives the cue. Zombie responses can be useful, harmless, or sometimes harmful.
+
+3. - **The reward.** Every habit develops and continues because it rewards us. It gives us an immediate little feeling of pleasure. Procrastination's an easy habit to develop because the reward, moving your mind's focus to something more pleasant, happens so quickly and easily. But good habits can also be rewarded. Finding ways to reward good study habits is important for escaping procrastination.
+
+4. - **The belief.** Habits have power because of your belief in them. For example, you might feel you'll never be able to change your habits of putting off your studies until late in the day. To change a habit, you'll need to change your underlying belief.
+
+
+### Surf's Up: Process Versus Product
+It's perfectly normal to start with a few negative feelings about beginning a learning session. Even when it's a subject you like, it's how you handle those feelings that matters. Nonprocrastinators put their negative thinking aside saying things to themselves like. 'Quit wasting time and just get on with it, once you get going, you'll feel better about it.'
+
+If you find yourself avoiding certain tasks because they make you feel uncomfortable, there's another helpful way to re-frame things. And that's to **learn to focus on process not product.**
+
+**Process means, the flow of time** and the habits and actions associated with that flow of time. As in, I'm going to spend 20 minutes working. **Product is an outcome**, for example, a homework assignment that you need to finish.
+
+To prevent procrastination, avoid concentrating on product. Instead, your attention should be on building processes. Processes relate to simple habits, habits that coincidentally allow you to do the unpleasant tasks that need to be done.
+
+> For example, lets say you don't like doing homework in a particular class. So you put off working on the homework. It's only five questions you think. How hard could that be? Deep down, you realize that answering these five questions could be a very lengthy job. It's easier to live in a fantasy world where the five questions, or the ten page report or whatever, can be done at the last minute. You're challenge is to avoid focusing on the product, the answers to the questions. The product is what triggers the pain that causes you to procrastinate. Instead, you need to focus on the process or processes. The small chunks of time you need over days or even weeks to answer the questions or prepare for tests. Who cares whether you finish the homework or grasp the key concepts in any one session. The whole point instead, is that you calmly put forth your best effort for a short period.
+
+One of the easiest ways to focus on process is to focus on doing a Pomodoro, a 25 minute timed work session, not on completing a task. The essential idea here is that the zombie habitual part of your brain likes processes because it can march mindlessly along.
+
+It's far easier to enlist the friendly zombie habit to help with a process, then to help with a product. By focusing on process rather than product, you allow yourself to back away from judging yourself, am I getting closer to finishing? And instead you allow yourself to relax into the flow of the work.
+
+
+### Harnessing Your Zombies to Help You
+Powers of habit to help you avoid procrastination while minimizing your use of willpower. Don't do a full scale change of old habits. Override parts of them and develop a few new ones. The trick to overriding a habit is to look to change your reaction to a cue. The only place you need to apply willpower is to change your reaction to the cue.
+
+**The first one is the cue.** Recognize what launches you in to your zombie procrastination mode. Cues usually fall into one of the four following categories. Location, time, how you feel and reactions. Happens when you look something up on the web and then find yourself web surfing, or a text message disturb your studying taking you 10 minutes to get back into the flow of things.
+
+**Number two, the routine.** Let's say then instead of doing your studies you often divert your attention to something less painful. Your brain wants to automatically go into this routine when you've gotten your cue. So this, is the reaction clue where you must. Actively focus on rewiring your old habit. The key to rewiring is to have a plan. Developing a new ritual can be helpful. Some students make it a habit to leave their phone in their car when they head in for class which removes a potent distraction.  Don't try to change everything at once.
+
+**Number three is the reward.** Why are you procrastinating? Can you substitute an emotional payoff, maybe a feeling of pride for accomplishing something, even if it's small, a sense of satisfaction? Can you win a small internal bet or a contest about something you've turned into a personal game or allow yourself to indulge in a latte or read a favorite web site, provide yourself, maybe, with an evening of mindless television or web surfing without guilt.
+
+Also remember that the better you get at something, the more enjoyable it can become.
+
+**Number four is the belief.** The most important part of changing your procrastination habit is the belief that you can do it. You may find that when the going gets stressful. You long to fall back into old, more comfortable habits. Belief that your new system works is what can get you through.
+
+
+### Juggling Life and Learning
+A good way to keep perspective about what you're trying to learn and accomplish, is to once a week write a brief weekly list of key tasks. Then each day on another page, write a list of the tasks that you can reasonably work on or accomplish.
+
+Try to write this daily task list the evening before. Research has shown that this helps your subconscious to grapple with the tasks on the list so you can figure out how to accomplish them. Writing the list before you go to sleep, enlists your zombies, to help you accomplish the items on the list the next day. If you don't write your tasks down on a list, they lurk at the edge of the four or so slots of your working memory, taking up valuable mental real estate. But once you make a task list, it frees working memory for problem solving.
+
+It is also good to mix different kinds of tasks, like studying a discipline and then go do something physical, like cleaning something.
+
+Try to work on a most important and most disliked task first.
+
+
+### Diving Deeper into Memory
+We have outstanding visual and spacial memory systems that can help form part of our long-term memory. If you were asked to look around a house you never visited before, you'd soon have a sense of the general furniture layout and where the rooms were, color scheme, the pharmaceuticals in the bathroom cupboard. In just a few minutes, your mind would acquire and retain thousands of new pieces of information. Even weeks later, you'd still hold far more in your mind than if you'd spent the same amount of time staring at a blank wall. Your mind is built to retain this kind of general information about a place.
+
+To begin tapping into your visual memory system try making a very memorable visual image representing one key item you want to remember.  Part of the reason an image is so important to memory is that images connect directly to your right brain's visual spacial centers. The image helps you encapsulate a seemingly humdrum and hard to remember concept by tapping into visual areas with enhanced memory abilities. The more neural hooks you can build by evoking the senses, the easier it will be for you to recall the concept and what it means.
+
+Repetition's important. Even when you make something memorable, repetition helps get that memorable item firmly lodged into long-term memory. Remember to repeat not a bunch of times in one day but sporadically over several days. Index cards can often be helpful. Writing and saying what you're trying to learn seems to enhance retention.
+
+
+### What is Long Term Memory?
+At the age of 27, HM had an operation for epilepsy that took out his hippocampus on both sides of his brain.
+
+The hippocampus has a shape of a seahorse and is named from the Greek hippos, meaning horse and kampos, meaning sea monster.
+
+The operation was a success. The epilepsy was cured but the price was steep. HM could no longer remember new things. He had become profoundly amnesic. Curiously, you could have a normal conversation with HM, but if you left the room for a few minutes, he could not remember you or what you had discussed.
+
+In the film Memento, the character played by Guy Pearce had this form of amnesia from a concussion.
+Note that he tattooed his body with messages, so that he would not forget what he had to do. HM could learn other things, like a new motor skill, but he could not remember having learned it.
+
+Memories are not fixed but living, breathing parts of your brain that are changing all of the time.
+
+Whenever you recall a memory, it changes, a process called, reconsolidation. It is even possible to implant false memories, which are indistinguishable from real ones by simply suggesting and imagining, especially in children who have vivid imaginations.
+
+This is why it is more effective to space learning over time, rather than mass learning all at once. If you want to study something for an hour, you will retain it longer if you spend 10 minutes each month over a semester than an hour on one day.
+
+In contrast, if you wait until the day before an exam to cram the material, you may be able to retrieve for the next day on the exam but it will quickly fade from memory.
+
+In addition to neurons, brains have several types of supporting cells called glial cells. The astrocyte is the most abundant glial cell in the human brain. Astrocytes provide nutrients to neurons, maintain extra cellular ion balance, and are involved with repair following injury.
+
+
+### Creating Meaningful Groups and the Memory Palace Technique
+Another key to memorization is to create meaningful groups that simplify the material. Let's say you wanted to remember four plants that help ward off vampires. Garlic, rose, hawthorn and mustard. The first letters abbreviate to GRHM, so all you need to do to remember is use the image of a graham cracker.
+
+Many disciplines use memorable sentences to help students memorize concepts. The first letter of each word in the sentence is also the first letter of each word in a list that needs to be memorized.
+
+The memory palace technique is a particularly powerful way of grouping things you want to remember. It involves calling to mind a familiar place. Like the layout of your house, and using it as a sort of a visual notepad where you can deposit the concept images that you want to remember. All you have to do is call to mind the place you're familiar with. Your home, your route to school, or your favorite restaurant.
+
+> The memory palace technique is useful for remembering unrelated items, such as a grocery list. Milk, bread, eggs. To use the technique, you might imagine a gigantic bottle of milk just inside your front door. The bread plopped on the couch and a cracked egg dribbling off the edge of the coffee table. In other words, you'd imagine yourself walking through a place you know well, coupled with shockingly memorable images of what you want to remember.
+
+***
+
+### Week 4 - Renaissance Learning  and Unlocking Your Potential I
+### How to Become a Better Learner
+
+Tip number one, the best gift that you can give your brain is Physical Exercise. We once thought that all of the neurons in your brain were already present at birth, but we now know that in a few places, new neurons are born every day.
+
+There are certain critical periods in the development of your brain. When sudden improvements occur in specific abilities, expect them to happen and prepare your brain for them. The critical period for first language acquisition extends up to puberty. One of the best studied critical periods in the brain is when binocular depth perception or stereopsis matures during the first two years of life.
+
+
+### Create a Lively Visual Metaphor or Analogy
+
+One of the best things you can do to not only remember, but understand concepts, is to create a metaphor or analogy for them. Often the more visual the better. A metaphor is just a way of realizing that one thing is somehow similar to another.
+
+It's often helpful to pretend that you are the concept you're trying to understand.
+
+Put yourself in an electron's warm and fuzzy slippers as it burrows through a slab of copper. Or sneak inside the X of an algebraic equation and feel what it's like to poke your head out of the rabbit hole. But just don't let it get exploded by an inadvertent divide by zero. In chemistry, compare a cation with a cat that has paws and is therefore pawsitive. And an anion with an onion that's negative, because it makes you cry.
+
+
+### No Need for Genius Envy
+This is a good place for us to step back and look again at chunking from another perspective.
+
+Notice what we're doing here. We're interleaving our learning by jumping back to revisit and deepen our understanding of a topic we've already covered. There's an interesting connection between learning math and science and learning a sport.
+
+In baseball, for example, you don't learn how to hit in one day. Instead, your body perfects your swing from lots and lots of repetition over a period of years. Smooth repetition creates muscle memory, so your body knows what to do from a single thought. One chunk instead of having to recall all the complex steps involved in hitting a ball.
+
+At some point you just know it from memory. For example you memorize the idea that you simply add exponents, those little superscript numbers, when you are multiplying numbers that have the same base. Ten to the fourth times ten to the fifth is equal to ten to the ninth.
+
+Chess masters, emergency room physicians, fighter pilots, and many other experts often have to make complex decisions rapidly. They shut down their conscious system and instead rely on their well trained intuition, drawing on their deeply ingrained repertoire of chunks.
+
+At some point self-consciously understanding why you do what you do, just slows you down and interrupts the flow resulting in worse decisions. But wait, are chess masters and people who can multiply six digit numbers in their heads exceptionally gifted? Not necessarily.
+
+Intelligence matters. Being smarter often equates to having a larger working memory. Your hot rod of a memory may be able to hold nine things in mind instead of four and you can latch on to those things like a bulldog, which makes it easier to learn. But guess what, it also makes it more difficult for you to be creative.
+
+How's that? It's our old friend and enemy Einstellung. The idea you are already holding in mind can block you from fresh thoughts. A superb working memory can hold its thoughts so tightly that new thoughts can't easily peek through.
+
+If you're one of those people who can't hold a lot in mind at once, you lose focus and start daydreaming in lectures and have to get to some place quiet to focus so you can use your working memory to its maximum, well welcome to the clan of the creative. Having a somewhat smaller working memory means you can more easily generalize your learning into new, more creative combinations.
+
+Because your working memory, which grows from the focusing abilities of the prefrontal cortex doesn't lock everything up so tightly, you can more easily get input from other parts of your brain. These other areas, which include the sensory cortex, not only are more in tune with what's going on around you in the environment, but are also the source of dreams, not to mention creative ideas.
+
+You may have to work harder sometimes or even much of the time to understand what's going on. But once you get something chunked you can take that chunk and turn it outside in and inside round, putting it through creative paces even you didn't think you were capable of. Here's another point to put into your mental chunker.
+
+
+### The Value of Teamwork
+There's a great deal of evidence from research that the right hemisphere helps us step back and put our work into big picture perspective. People with damage to the right hemisphere are often unable to gain ah-ha, insights. The right hemisphere, as it turns out, is vitally important in getting into the right track and doing reality checks.
+
+When you're absolutely certain that what you've done on a homework or test is fine, be aware that this feeling may be based on overly confident perspectives arising in part from the left hemisphere. When you step back and recheck, you're allowing for more interaction between the hemispheres, taking advantage of the special perspectives and abilities of each.
+
+Nobel Prize winning physicist Richard Feynman perhaps said it best when he pointed out, the first principle is that you must not fool yourself. And you are the easiest person to fool. One of the best ways to catch your blind spots and errors is to brainstorm and work with others who are also smartly focused on the topic.
+
+
+### A Test Checklist
+We've mentioned it earlier, but it's worth repeating. Testing is itself an extraordinarily powerful, learning experience. This means that the effort you put into test-taking, including the preliminary mini test of your recall and your ability to problem solve during your preparation is of fundamental importance. If you compare how much you learn by spending one hour studying, versus one hour taking a test on that same material, you'll retain and learn far more as a result of the hour you spent taking a test. Testing, it seems, has a wonderful way of concentrating the mind.
+
+- Did you make a serious effort to understand the text? Just hunting for relevent worked-out examples doesn't count.
+- Did you work with classmates on homework problems or at least check your solutions with others? Did you attempt to outline every homework problem solution before working with classmates?
+- Did you participate actively in homework group discussions contributing ideas and asking questions? Did you consult with the instructor or teaching assistants when you were having trouble with something?
+- Did you understand all your homework problem solutions when they were handed in? Did you ask in class for explanations of homework problem solutions that weren't clear to you? If you had a study guide, did you carefully go through it before the test and convince yourself you could do everything on it? Did you attempt to outline lots of problem solutions quickly without spending time on the Algebra in calculations?
+- Did you go over the study guide and problems with class mates and quiz one another? If there was a review session before the test, did you attended and asked questions about anything you weren't sure about?
+- And lastly, did you get a reasonable night's sleep before the test? If your answer is no, your answers to all the preceding questions may not matter.
+
+
+### Hard Start -> Jump to Easy
+The classic way students are taught to approach tests is to tackle the easiest problems first. This is based on the idea that by the time you finish the relatively simple problems, you'll be confident in handling the more difficult. This approach works for some people, mostly because, well, anything works for some people. Unfortunately, however, for many people it's counterproductive. Tough problems often need lots of time, meaning you'd want to start on them first thing on the test. Difficult problems can also scream for the creative powers of the diffuse mode. But to access the diffuse mode, you need to not be focusing on what you so badly want to solve.
+
+What to do? Easy problems first, or hard? The answer is to start with the hard problems but quickly jump to the easy ones.
+
+When the test is first handed out to you, first take a quick look to get a sense of what it involves. You should do this in any case.
+
+Then, when you start working the problems, start first with what appears to be the hardest problem. But steel yourself to pull away within the first minute or two, if you get stuck or you get a sense that you might not be on the right track.
+
+This does something exceptionally helpful. Starting hard loads the first most difficult problem in mind and then switches attention away from it. Both these activities are what allow the diffuse mode to begin its work. If your initial work on the first hard problem has unsettled you, turn next to an easy problem. And complete or do as much as you can. Then move, next, to another difficult looking problem and try to make a bit of progress. Again, change to something easier as soon as you feel yourself getting bogged down or stuck.
+
+When you return to the more difficult problems, you'll often be pleased that the next step or steps in the problem will seem to be more obvious to you. You may not be able to get all the way to the end immediately, but at least you can get further before you switch to something else of which you can make progress.
+
+The hard start jump to easy technique may make more efficient use of your brain by allowing different parts of the brain to work simultaneously on different thoughts. Using the hard start jump to easy technique on tests guarantees that you will have at least a little work done on every problem. It's also a valuable technique for helping you avoid Einstellung, getting stuck on the wrong approach - because you have a chance to look at the problem from differing perspectives.
+
+This may be why test takers sometimes find that the solution pops to mind right as they walk out the door. When they give up, their attention switched, allowing the diffuse mode the tiny bit of traction it needed to go to work and return the solution.
